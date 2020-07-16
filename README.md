@@ -1,3 +1,3 @@
-#Ramakant Rajput Photography Website
+Ramakant Rajput Photography Website
 
 Photography Website
